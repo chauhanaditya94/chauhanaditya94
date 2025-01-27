@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @chauhanaditya94
 - 👀 I’m interested in computer science
 - 🌱 I’m currently learning programing
-- 💞️ I’m looking to collaborate on start uo plan
+- 💞️ I’m looking to collaborate on start up plan
 - 📫 How to reach me i have provided links in bio
 - 😄 Pronouns: Adi
 - ⚡ Fun fact: live life like a game
